@@ -1,1 +1,3 @@
-# Codec-task1
+Anshika Chauhan
+Codec technologies
+June to July 2025
